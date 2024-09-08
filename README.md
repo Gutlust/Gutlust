@@ -1,1 +1,1 @@
- ![asdsd]([the link](https://wilardo.crd.co/assets/images/gallery06/ab018303_original.png?v=618e2dfe)
+ ![asdsd](https://open.spotify.com/track/7LZgdL0MxiElfaKZbuuE4l?si=5d1087c125ac4b46)
