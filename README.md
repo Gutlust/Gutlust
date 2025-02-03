@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tgytyty](https://file.garden/ZjKjCNClQA2p3YBz/rsrcs/pngs/vr7ho5.webp)
-![fdfdsds](https://file.garden/ZjKjCNClQA2p3YBz/rsrcs/stamps/dayg5kx-9aba36a1-dbb9-492e-9b57-3d3dc7348768.png)
+![fdfer](https://file.garden/ZjKjCNClQA2p3YBz/rsrcs/stamps/dch3lz9-3733eca1-4494-4048-8940-54b65222846d.png)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
 
