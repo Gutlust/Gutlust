@@ -5,7 +5,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![dsa](https://hits.dwyl.com/Gutlust/READme.svg?style=flat-square)](http://hits.dwyl.com/Gutlust/READme)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 ㅤㅤㅤㅤㅤ
 
 
