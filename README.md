@@ -5,7 +5,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![HitCount](https://hits.dwyl.com/Gutlust/READme.svg?style=flat-square)](http://hits.dwyl.com/Gutlust/READme)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![HitCount](https://hits.dwyl.com/Gutlust/READme.svg?style=round-square)](http://hits.dwyl.com/Gutlust/READme)
 ㅤㅤㅤㅤㅤ
 
 
