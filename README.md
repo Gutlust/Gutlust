@@ -4,9 +4,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tgytyty](https://file.garden/ZjKjCNClQA2p3YBz/rsrcs/pngs/vr7ho5.webp)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image description](https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2FGutlust%2FREADme.json&style=plastic&label=%20.%F0%96%A5%94%20%DD%81%20%CB%96&labelColor=%23b3575f&color=%23b3575f&cacheSeconds=1
-)
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 ㅤㅤㅤㅤㅤ
 
