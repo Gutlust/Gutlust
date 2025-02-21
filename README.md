@@ -5,7 +5,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![dasds](https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2FGutlust%2FREADme.json%3Fcolor%3Dpink)
 ㅤㅤㅤㅤㅤ
 
 
