@@ -5,7 +5,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Endpoint Badge](https://img.shields.io/endpoint?url=https%3A%2F%2Fgithub.com%2FGutlust&style=plastic&label=%20.%F0%96%A5%94%20%DD%81%20%CB%96)
 ㅤㅤㅤㅤㅤ
 
 
