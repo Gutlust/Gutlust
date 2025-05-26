@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=/Gutlust&style=flat-square)ㅤㅤㅤ
+![](https://komarev.com/ghpvc/?usernameGutlust&style=flat-square)ㅤㅤㅤ
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
