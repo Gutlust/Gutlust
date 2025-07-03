@@ -2,4 +2,5 @@
                                                                  I like your raindrop collector     ,     splash in my eyes                   
                                                                                                                                                                                                                                                                                                                                                                                ![image description](https://files.catbox.moe/1n4dvh.jpg)  
                                                                                                                              
-                                                                                                                              and makes everything          else look like you                                                                                                
+                                                                                                                              and makes everything          else look like you    
+                                                                                                                              ![](https://komarev.com/ghpvc/?username=Gutlust&style=plastic&color=473c55&label=⁠♡ᶻ𝗓)ㅤ
