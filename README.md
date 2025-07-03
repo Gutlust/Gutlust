@@ -1,4 +1,4 @@
-                                                                                                                                                                                                                                                                                                                                                                                       basic dni ૮˶• ﻌ •˶ა                                                                            
+                                                                                                           
      ![](https://komarev.com/ghpvc/?username=Gutlust&style=plastic&color=1c0c14&label=⁠♡ᶻ𝗓)                                                                                                                                                                                                         
                                                                                                                    
                                                                
