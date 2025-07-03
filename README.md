@@ -1,1 +1,8 @@
- 
+  ![](https://komarev.com/ghpvc/?username=Gutlust&style=plastic&color=1c0c14&label=⁠♡ᶻ𝗓)                                                                                                                                                                                                         
+                                                                                                                   
+                                                               
+                                                                 I like your raindrop collector     ,     splash in my eyes                   
+                                                                                                                                                                                                                                                                                                                                                                                                                           ![image description](https://i.pinimg.com/originals/b2/b0/3c/b2b03ce0db027ff5a2321b75924625d8.gif) 
+                                                                                                                             
+                                                                                                                                                                                                                        and makes everything          else look like you  !   
+                                                                                                              basic dni ૮˶• ﻌ •˶ა                                                                             
