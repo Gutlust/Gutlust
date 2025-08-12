@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/0gnken.png)                                                                                                          ![](https://komarev.com/ghpvc/?username=Gutlust&style=plastic&color=1c0c14&label=⁠♡ᶻ𝗓)                                                                                                                                                                                                               
+                                                                                                          ![](https://komarev.com/ghpvc/?username=Gutlust&style=plastic&color=1c0c14&label=⁠♡ᶻ𝗓)                                                                                                                                                                                                               
                                                                                                                    
                                                                
                                                                          I like your raindrop collector     ,     splash in my eyes                   
