@@ -1,4 +1,4 @@
-                                                                                                                          ![](https://komarev.com/ghpvc/?username=Gutlust&style=plastic&color=222423&label=𖤝)     
+                                                                                                                       ![](https://komarev.com/ghpvc/?username=Gutlust&style=plastic&color=222423&label=𖤝)     
                       
                                                                                                                                                                                                                                                                                                                                                              
                                                                                                                                                             ![image description](https://64.media.tumblr.com/098b8cedb51467a9d488e5ccc42b57ab/d66f8d99a3b5e367-ed/s100x200/2b90b0cf652d1e3952aefe99e8cf7a25a9243728.gifv)                     
