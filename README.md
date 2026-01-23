@@ -7,4 +7,4 @@
               <p align="center">
               <img src="https://files.catbox.moe/88kwq9.webp" width="25" > ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𓏻 ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎𝙣𝙚𝙫  ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  𓈒
 <p align="center">
-. ‎ ‎ ⸸  ‎ ‎ ‎ ‎ ‎ ‎ 5teen  ‎ ‎ ‎ ‎ ‎ <img src="https://files.catbox.moe/vnd5f4.png" >
+. ‎ ‎ ⸸  ‎ ‎ ‎ ‎ ‎ ‎ 5teen  ‎ ‎ ‎ ‎ ‎ <img src="https://files.catbox.moe/b7rzeq.png" >
