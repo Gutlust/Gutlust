@@ -10,4 +10,4 @@
 <p align="center">
 . ‎ ‎ ⸸  ‎ ‎ ‎ ‎ ‎ ‎ 5teen  ‎ ‎ ‎ ‎ ‎ <img src="https://files.catbox.moe/b7rzeq.png" >‎ ‎ ‎ ‎ ‎ w2i‎ ‎ ‎ ‎ ‎ ︶
 <p align="center"> 
-      <img src="https://files.catbox.moe/40pkdz.webp>
+      <img src="https://files.catbox.moe/40pkdz.webp">
