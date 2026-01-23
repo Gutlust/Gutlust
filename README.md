@@ -1,5 +1,4 @@
-<p align="center">
-        sugar ‎ ‎ d‎ont ‎ ‎ you ‎ ‎ for ‎ ‎ get ‎ ‎ me‎ ‎  ‎ ‎ , ‎‎ ‎  ‎ im‎ ‎  only‎ ‎  asking
+
 <div align="center">
  
 <img src="https://komarev.com/ghpvc/?username=Gutlust&color=670E10&style=plasic&label=　☣︎　">
