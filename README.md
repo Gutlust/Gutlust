@@ -5,4 +5,4 @@
  <p align="center">
         <img src="https://litter.catbox.moe/9033v3r1p5qqeume.png" >
               <p align="center">
-              <img src="https://files.catbox.moe/88kwq9.webp" > ‎ ‎ ‎ 𓏻  ‎ ‎ ‎ 𝙣𝙚𝙫  ‎ <img src="https://files.catbox.moe/5lhb3s.webp" width="20">  ‎ 5teen ‎ 𓈒
+              <img src="https://files.catbox.moe/88kwq9.webp" > ‎ ‎ ‎ 𓏻  ‎ ‎ ‎ 𝙣𝙚𝙫  ‎ <img src="https://files.catbox.moe/5lhb3s.webp" width="40">  ‎ 5teen ‎ 𓈒
