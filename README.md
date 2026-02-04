@@ -3,4 +3,4 @@
          <p align="center">
      𓏵 ㅤㅤ𓏏ㅤㅤ𝙣𝙚𝙫ㅤㅤノ
       <p align="center">           
-              yoshiki tsujinaka 𝙞𝙧𝙡        dsads
+              yoshiki tsujinaka 𝙞𝙧𝙡  ㅤㅤㅤㅤ     
