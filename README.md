@@ -6,3 +6,5 @@
     <img src="https://files.catbox.moe/2jakkv.jpg">  ㅤ𓈒ㅤㅤ5teen ㅤㅤ𑄝 ㅤㅤyoshiki tsujinaka 𝙞𝙧𝙡ㅤ𓂅
     <p align="center">
           offtabㅤㅤ༝ㅤㅤw2i
+<p align="center">
+<img src="https://files.catbox.moe/w9t08p.png">ㅤㅤㅤㅤ<img src="https://files.catbox.moe/1g3o96.png">
