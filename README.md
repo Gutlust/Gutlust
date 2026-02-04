@@ -2,7 +2,7 @@
  
 <img src="https://komarev.com/ghpvc/?username=Gutlust&color=161b22&style=plasic&label=　🪽　">
 <p align="center">
-        <img src="https://files.catbox.moe/n1h5yr.png" width="300" >
+        <img src="https://files.catbox.moe/n1h5yr.png" width="350" >
          <p align="center">
      𓏵 ㅤㅤ𓏏ㅤㅤ𝙣𝙚𝙫ㅤㅤノ ㅤㅤ<img src="https://files.catbox.moe/idai6r.webp">
       <p align="center">           
