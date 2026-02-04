@@ -1,6 +1,6 @@
 <div align="center">
  
-<img src="https://komarev.com/ghpvc/?username=Gutlust&color=161b22&style=plasic&label=　🪽　">
+<img src="https://komarev.com/ghpvc/?username=Gutlust&color=161b22&style=plasic&label=　𝜗𝜚　">
 <p align="center">
         <img src="https://files.catbox.moe/n1h5yr.png" width="350" >
          <p align="center">
