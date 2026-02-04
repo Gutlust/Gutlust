@@ -5,4 +5,4 @@
       <p align="center">           
     <img src="https://files.catbox.moe/2jakkv.jpg">  ㅤ𓈒ㅤㅤ5teen ㅤㅤ𑄝 ㅤㅤyoshiki tsujinaka 𝙞𝙧𝙡ㅤ𓂅
     <p align="center">
-          w2iㅤㅤ༝ㅤㅤofftab
+          offtabㅤㅤ༝ㅤㅤw2i
