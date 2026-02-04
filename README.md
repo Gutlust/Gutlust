@@ -1,4 +1,4 @@
 <p align="center">
         <img src="https://files.catbox.moe/n1h5yr.png" width="300" >
          <p align="center">
-     𓏵 ㅤ ‎𓏏ㅤㅤㅤ𝙣𝙚𝙫ㅤㅤ/ ㅤㅤyoshiki tsujinaka 𝙞𝙧𝙡
+     𓏵 ㅤㅤㅤ‎𓏏ㅤ𝙣𝙚𝙫ㅤㅤ/ ㅤㅤyoshiki tsujinaka 𝙞𝙧𝙡
