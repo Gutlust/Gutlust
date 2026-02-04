@@ -3,4 +3,4 @@
          <p align="center">
      𓏵 ㅤㅤ𓏏ㅤㅤ𝙣𝙚𝙫ㅤㅤノ
       <p align="center">           
-    𑄝ㅤㅤ𓈒ㅤㅤyoshiki tsujinaka 𝙞𝙧𝙡  ㅤㅤㅤㅤ     ㅤㅤ
+    𑄝ㅤㅤ𓈒ㅤㅤyoshiki tsujinaka 𝙞𝙧𝙡  ㅤㅤㅤㅤ <img src="https://files.catbox.moe/2jakkv.jpg">    ㅤㅤ
