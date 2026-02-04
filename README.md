@@ -2,4 +2,5 @@
         <img src="https://files.catbox.moe/n1h5yr.png" width="300" >
          <p align="center">
      𓏵 ㅤㅤ𓏏ㅤㅤ𝙣𝙚𝙫ㅤㅤノ
-                  yoshiki tsujinaka 𝙞𝙧𝙡
+      <p align="center">           
+              yoshiki tsujinaka 𝙞𝙧𝙡
