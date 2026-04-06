@@ -6,4 +6,4 @@
 <p align="center">
         <img src="https://files.catbox.moe/sop5pb.webp" width="400" >
 <p align="center">
-<img src="https://files.catbox.moe/s4jkxh.gif" width="25" >
+<img src=" >
