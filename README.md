@@ -8,6 +8,6 @@
 <p align="center">
 𝜗。　  ◞　ηєν　 　 ꜆ 　  тнєу  '  нє
 <p align="center">
-.  <img src="https://files.catbox.moe/heol3d.webp" > 　 ᛝ　 　  taken 　  ‿‿   　mlm　𓈒
+.　 <img src="https://files.catbox.moe/heol3d.webp" > 　 ᛝ　 　  taken 　  ‿‿   　mlm　𓈒
   <p align="center">
   5teen　　𓏼　˚　　𝙞𝙡𝙢𝙗𝙛𝙨𝙢 　 <img src="https://files.catbox.moe/pt65u2.webp" >
