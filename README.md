@@ -8,6 +8,6 @@
 <p align="center">
 𝜗。　  ◞　ηєν　 　 ꜆ 　  тнєу  '  нє
 <p align="center">
-  <img src="https://files.catbox.moe/23hy2u.webp" >
+  <img src="https://files.catbox.moe/heol3d.webp" >
 
 
