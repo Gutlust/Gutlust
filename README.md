@@ -1,5 +1,5 @@
 <div align="center">
- 
+ mostly  offtabㅤㅤ♯ㅤㅤw2i
 <img src="https://komarev.com/ghpvc/?username=Gutlust&color=161b22&style=plasic&label=　𝜗𝜚　">
 
 𓏼
@@ -12,4 +12,4 @@
   <p align="center">
 　  、　 5teen　　𓏼　˚　　𝙞𝙡𝙢𝙗𝙛𝙨𝙢 　 <img src="https://files.catbox.moe/pt65u2.webp" >
 <p align="center">
-mostly  offtabㅤㅤ♯ㅤㅤw2iㅤ 
+ㅤ 
