@@ -7,7 +7,7 @@
         <img src="https://files.catbox.moe/sop5pb.webp" width="400" >
 <p align="center">
 𝜗。　  ◞　ηєν　 　 ꜆ 　  тнєу  '  нє
-
+<p align="center">
   <img src="https://files.catbox.moe/23hy2u.webp" >
 
 
