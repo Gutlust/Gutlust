@@ -3,4 +3,4 @@
 <p align="center">
  ࣪ ࣪⠀⠀  ⠀<img src="https://files.catbox.moe/8hy0hk.webp">　  　 nev　  ༝ 　 15 𓈒
 <p align="center"> 
-✙ 　 ﹐   тнєу  '  нє⠀  ⠀  <img src="https://files.catbox.moe/l97uvj.webp">
+✙ 　 ﹐   тнєу  '  нє⠀  ⠀  <img src="https://files.catbox.moe/l97uvj.webp">  ꜆ 
