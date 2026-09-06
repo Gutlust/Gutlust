@@ -5,4 +5,4 @@
         <img src="https://files.catbox.moe/ozvw8t.png" width="600">
 <p align="center">
  ࣪ ࣪
-          <img src="https://files.catbox.moe/jlvek1.png" width="50">⠀  ⠀  <img src="https://files.catbox.moe/wakbtv.png" width="50">
+          <img src="https://files.catbox.moe/jlvek1.png" width="200">⠀  ⠀  <img src="https://files.catbox.moe/wakbtv.png" width="200">
