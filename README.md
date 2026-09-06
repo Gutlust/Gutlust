@@ -2,7 +2,7 @@
 
 <img src="https://komarev.com/ghpvc/?username=Gutlust&color=f09e4d&style=plasic&label=´ཀ` ">
 <p align="center">
-        <img src="https://files.catbox.moe/kriqc4.png" width="400">
+        <img src="https://files.catbox.moe/kriqc4.png" width="600">
 <p align="center">
  ࣪ ࣪⠀⠀  ⠀<img src="https://files.catbox.moe/8hy0hk.webp">　  　 nev　  ༝ 　 15 𓈒
 <p align="center"> 
