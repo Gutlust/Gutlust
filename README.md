@@ -1,7 +1,7 @@
 <div align="center">
  <img src="https://komarev.com/ghpvc/?username=Gutlust&color=535353&style=plasic&label=🐺 ">
 <p align="center">
-        <img src="https://files.catbox.moe/3mqmaj.png" width="600">
+        <img src="https://files.catbox.moe/3mqmaj.png" width="400">
 <p align="center">
 <img src="https://files.catbox.moe/1v1x46.webp" width="30"> ⠀  ⠀⠀  ͜ ⠀  ⠀.⠀  ⠀nev⠀  ⠀𓏲⠀⠀  ⠀he⠀'⠀they  ⠀.⠀  ⠀₊ ⊹
 <p align="center">
