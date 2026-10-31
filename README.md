@@ -3,5 +3,5 @@
 <p align="center">
         <img src="https://files.catbox.moe/3mqmaj.png" width="300">
 <p align="center">
-.          #𝔫𝔢v        ♱   <img src="https://poempuppy.neocities.org/resources/pixels/o5puti.gif">         ༝༝
- 16  ´      he      they       𓏵  .       w2i  𑄝੭
+.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ #𝔫𝔢v‎ ‎ ‎ ‎ ‎ ‎  ♱‎ ‎ ‎ ‎ <img src="https://poempuppy.neocities.org/resources/pixels/77fazp.gif">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ༝༝
+ 16‎ ‎ ´‎ ‎ ‎ ‎ ‎ ‎ he‎ ‎ ‎ ‎ ‎ ‎ they‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎𓏵  .‎ ‎ ‎ ‎ ‎ ‎ w2i ‎ ‎  𑄝੭
