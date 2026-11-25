@@ -1,5 +1,5 @@
 <div align="center">
- <img src="https://komarev.com/ghpvc/?username=Gutlust&color=bdd1d9&style=plasic&label=ˋ📸˚.">
+ <img src="https://komarev.com/ghpvc/?username=Gutlust&color=9eb6ce&style=plasic&label=ˋ📸˚.">
 <p align="center">
 <img src="https://files.catbox.moe/hhviv5.png" width="450">
 <p align="center">
